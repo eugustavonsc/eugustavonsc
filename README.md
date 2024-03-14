@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://media.tenor.com/QoELkOCvxykAAAAC/jujutsu-kaisen-gojo-satoru.gif"  />
+<img align="right" height="150" src="https://media2.giphy.com/media/bqm6WOjuLu480/200w.gif"  />
 
 ###
 
